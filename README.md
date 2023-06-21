@@ -8,7 +8,6 @@ Currently studying:
 React, React Native and Typescript. <br/>
 ✉️ How to reach me: jrodolfo.brasil1@hotmail.com <br/>
 😄 Pronouns: Him/his<br/>
-Pride🏳️‍🌈
   
 ### 💻 &nbsp;Stacks
 
